@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @syrofoam
-- 👀 I’m interested in gaming, coding, fishing
+- 👀 I’m interested in gaming, coding, music, travel & more.
 - 🌱 I’m always learning 
 - 💞️ I’m looking to collaborate on software that I use or think is good for humanity.
 - 📫 Reach me at pylsan@protonmail.com
